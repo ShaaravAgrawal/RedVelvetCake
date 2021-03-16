@@ -1,0 +1,1 @@
+This cake recipe requires 4 large eggs. Separate the eggs before starting. Beat the egg yolks with the wet ingredients, then beat the egg whites into fluffy peaks and fold them in last. Beating the egg whites incorporates air and promises a velvet-rich texture.
